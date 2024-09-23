@@ -19,7 +19,7 @@ The first song he ever released is "King Charles" and it was released in 2017. H
 
 # BLUDFEST
 ![Alt text](https://live.staticflickr.com/1388/605416333_22b1782f63_b.jpg)
-Yungblud created his own festival for **the very first time** this year in August. It took place in Milton Keynes Bowl, in England (more specifically in Buckinghamshire, which is a county in the middlands). 
+Yungblud created his own festival for **the very first time** this year in August. It took place in Milton Keynes Bowl, in England (more specifically in Buckinghamshire, which is a county in the middlands). He explained that the prices of the tickets were very low because he wants more people to be able to attend it as "music should be for everybody". 
 
 
 

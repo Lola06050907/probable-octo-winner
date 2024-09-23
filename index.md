@@ -2,7 +2,7 @@
 ![Dom at Bludfest](https://images.kerrangcdn.com/images/YUNGBLUD-Bludfest-2024-header-credit-Sabrina-Ramdoyal.jpg?auto=compress&fit=max&w=1920)
 ## Biography 
 ### Basics
-Dominic Richard Harrison (stagename Yungblud) is an English artist (more specifically a singer and a songwriter). He was born in Doncaster, which is a city located in the North of England, more specificallly in South Yorkshire. 
+Dominic Richard Harrison (stagename Yungblud ~not Youngblood~) is an English artist (more specifically a singer and a songwriter). He was born in Doncaster, which is a city located in the North of England, more specificallly in South Yorkshire. 
 He was born on the 5th of August 1997. 
 His songs don't really fit a box in terms of music genres. He released different types of songs that could be labelled as pop, rock, hip hop or punk songs. His work is inspried from different singers that make different types of songs. For example, he got his inspiration from My Chemical Romance, the Clash, the Cure, the Sex Pistols, Lady Gaga or even Eminem.
 His music gathered so many people together, his work enabled people to find a community where they can be themselves without judgment, which is called the BHC (the black hearts club). 
@@ -18,7 +18,8 @@ He moved to London when he was about 16, 17 years old. He was hoping that he wou
 The first song he ever released is "King Charles" and it was released in 2017. He then released "Tin Pan Boy" to denounce a construction project in London. In 2018, he released his first album called "21st Century Liability" which raised awareness on a variety of topics such as sexual assault, gun violence, and mental health. He then released an EP called "Hope for the Underrated Youth", with a song called "Parents" denouncing homophobia amongst other things. 
 
 # BLUDFEST
-Yungblud created his own festival for the first time this year in August. It took place in Milton Keynes 
+![Alt text](https://live.staticflickr.com/1388/605416333_22b1782f63_b.jpg)
+Yungblud created his own festival for **the very first time** this year in August. It took place in Milton Keynes Bowl, in England (more specifically in Buckinghamshire, which is a county in the middlands). 
 
 
 

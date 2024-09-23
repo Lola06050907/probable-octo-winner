@@ -7,6 +7,5 @@ His songs don't really fit a box in terms of music genres. He released different
 His music gathered so many people together, his work enabled people to find a community where they can be themselves without judgment, which is called the BHC (the black hearts club). 
 
 #### His family/childhood
-
 His mum (Samantha Harrison) own a café and his dad (Justin Harrison) own a record shop. He has two younger sisters (named Isobel and Jemima). 
-He was diagnosed with ADHD from a very young age. It stands for Attention Hyperactivity Deficit Disorder. He explained in an interview with Louis Theroux that it was a source of energy and that it was why he hadn't slept well enough in years. He also explained that at school, he had difficulties concentrating on any task. 
+He was diagnosed with ADHD from a very young age. It stands for Attention Hyperactivity Deficit Disorder. He explained in an interview with Louis Theroux that it was a source of energy and that it was why he hadn't slept well enough in years. He also explained that at school, he had difficulties concentrating on any task. He also had mood swings which were elemments that led to him getting his diagnosis. He addressed this topic in more details in an extract from the said interview, accessible via the following link: [The interview with Louis Theroux]( https://www.youtube.com/watch?v=UG_imPDsxfw)

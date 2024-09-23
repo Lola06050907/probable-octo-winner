@@ -20,5 +20,7 @@ The first song he ever released is "King Charles" and it was released in 2017. H
 # Bludfest 
 ![Alt text](https://live.staticflickr.com/7897/33226805178_b715b136e4_b.jpg)
 
-Dom created his own festival called Bludfest for the very first time this year. It took place in August in Milton Keynes Bowl, more specifically in Buckinghamshire, in England. He wanted the prices of tickets to be as low as possible because a lot of people can't afford to pay for festival tickets because they are usually very expensive. He said music is for everybody so he wanted as many people as possible to be able to get tickets. 
+Dom created his own festival called Bludfest for the very first time this year. It took place in August in Milton Keynes Bowl, more specifically in Buckinghamshire, in England. He wanted the prices of tickets to be as low as possible because a lot of people can't afford to pay for festival tickets because they are usually very expensive. He said music is for everybody so he wanted as many people as possible to be able to get tickets. (The tickets were £49.50 and there were more than 7 artists who played at the festival, including Lola Young, Noahfinnce, The Damned (this band was the icon slot of the event), Jasmin Bean and Lil Yatchy. 
+
+There were other things to do there as well: there were places where you could buy merchandise or even designer clothes from the brand he created called BRAT (which stands for Beautifullly Romanticised Accidentally Traumatised). There were different types of food to choose from and there was even a pub that was built on the premises. It was the Hawley Arms (the pub in Camben Town, in London). 
 

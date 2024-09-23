@@ -1,4 +1,5 @@
 # YUNGBLUD
+![Dom at Bludfest](https://images.kerrangcdn.com/images/YUNGBLUD-Bludfest-2024-header-credit-Sabrina-Ramdoyal.jpg?auto=compress&fit=max&w=1920)
 ## Biography 
 ### Basics
 Dominic Richard Harrison (stagename Yungblud) is an English artist (more specifically a singer and a songwriter). He was born in Doncaster, which is a city located in the North of England, more specificallly in South Yorkshire. 
@@ -8,4 +9,11 @@ His music gathered so many people together, his work enabled people to find a co
 
 #### His family/childhood
 His mum (Samantha Harrison) own a café and his dad (Justin Harrison) own a record shop. He has two younger sisters (named Isobel and Jemima). 
-He was diagnosed with ADHD from a very young age. It stands for Attention Hyperactivity Deficit Disorder. He explained in an interview with Louis Theroux that it was a source of energy and that it was why he hadn't slept well enough in years. He also explained that at school, he had difficulties concentrating on any task. He also had mood swings which were elemments that led to him getting his diagnosis. He addressed this topic in more details in an extract from the said interview, accessible via the following link: [The interview with Louis Theroux]( https://www.youtube.com/watch?v=UG_imPDsxfw)
+He was diagnosed with ADHD from a very young age. It stands for Attention Hyperactivity Deficit Disorder. He explained in an interview with Louis Theroux that it was a source of energy and that it was why he hadn't slept well enough in years. He also explained that at school, he had difficulties concentrating on any task. He also had mood swings which were elemments that led to him getting his diagnosis. He addressed this topic in more details in an extract from the said interview, accessible via the following link: [The interview with Louis Theroux]( https://www.youtube.com/watch?v=UG_imPDsxfw). He moved to London when he was about 16, 17 years old. He was hoping that he would "find himself" there because gowing up in Doncaster, he explained that he was judged and mocked for the was he expressed himself, for being opinionated, outspoken  and for the was he dressed. During his time in London, he was studying at the Art Educational School. At some point, he was sharing a flat with, his best friend, and now guitar player, Adam .... They dicussed different anecdotes about that period of time in a podcast he made called "The YUNGBLUD Podcast", accessible via this link for more info: [The YUNGBLUD Podcast](https://www.bbc.co.uk/sounds/play/m000p82j). 
+
+### His discography
+
+The first song he ever released is "King Charles" and it was released in 
+
+
+

@@ -17,6 +17,10 @@ He moved to London when he was about 16, 17 years old. He was hoping that he wou
 
 The first song he ever released is "King Charles" and it was released in 2017. He then released "Tin Pan Boy" to denounce a construction project in London. In 2018, he released his first album called "21st Century Liability" which raised awareness on a variety of topics such as sexual assault, gun violence, and mental health. He then released an EP called "Hope for the Underrated Youth", with a song called "Parents" denouncing homophobia amongst other things. 
 
+# His other projects 
+## Bludfest 
+![Alt text](https://live.staticflickr.com/7897/33226805178_b715b136e4_b.jpg)
+
 Dom created his own festival called Bludfest for the very first time this year. It took place in August in Milton Keynes Bowl, more specifically in Buckinghamshire, in England. He wanted the prices of tickets to be as low as possible because a lot of people can't afford to pay for festival tickets because they are usually very expensive. He said music is for everybody so he wanted as many people as possible to be able to get tickets. (The tickets were £49.50 and there were more than 7 artists who played at the festival, including Lola Young, Noahfinnce, The Damned (this band was the icon slot of the event), Jasmin Bean and Lil Yatchy. 
 
 There were other things to do there as well: there were places where you could buy merchandise or even designer clothes from the brand he created called BRAT (which stands for Beautifullly Romanticised Accidentally Traumatised). There were different types of food to choose from 

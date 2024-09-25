@@ -5,6 +5,8 @@
 
 Dom wrote a book which was published on the 13th of August, this year. (You could also buy it at his own music festival which took place two days prior. More info via this link: [Bludfest](../dossier/secondpage.md)
 
+If you want more information click on this link: [Backtomainpage](../index.md)  
+
 This book is a way to, face your fears and insecurities or to have a place in which you can find comfort, have an outlet. It's also a way to help you discover who you are. In this book, each page has a different layout and has a specific use.  
 ==================================================================== 
 

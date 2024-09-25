@@ -12,7 +12,7 @@ There were other things to do there as well: there were places where you could b
 (You could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!) 
 There was also pub that was built on the premises. It was the Hawley Arms (the pub in Camben Town, in London). 
 
-![Alt text](../pic/)
+![Alt text](../pic/photopub.jpg)
 
 There was also a make a friend tent, which was great if you needed a place to chill and unwind. It was also a place to make friends if you were worried about going to Bludfest on your own. (There was also a little garden behind the tent where you could relax too, that's where, my friend and I made some friends with other fans). 
 

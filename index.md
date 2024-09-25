@@ -1,5 +1,5 @@
 # YUNGBLUD
-![Alt text](
+![Alt text](pic/photomain.jpg)
 ## Biography 
 ### Basics
 Dominic Richard Harrison (stagename Yungblud) is an English artist (more specifically a singer and a songwriter). He was born in Doncaster, which is a city located in the North of England, more specificallly in South Yorkshire. 

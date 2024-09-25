@@ -18,4 +18,4 @@ There was also a make a friend tent, which was great if you needed a place to ch
 
 There was also a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar) or his previous albums. Plus, at the end of the exhibition, you could write a secret or a confessions on the walls. Then, you can get a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "you need to exist" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md)  
 
-If you want more information about his life and his work, follow this ink: [Backtomainpage](index.md)  
+If you want more information about his life and his work, follow this ink: [Backtomainpage](../index.md)  

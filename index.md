@@ -17,5 +17,12 @@ He moved to London when he was about 16, 17 years old. He was hoping that he wou
 
 The first song he ever released is "King Charles" and it was released in 2017. He then released "Tin Pan Boy" to denounce a construction project in London. In 2018, he released his first album called "21st Century Liability" which raised awareness on a variety of topics such as sexual assault, gun violence, and mental health. He then released an EP called "Hope for the Underrated Youth", with a song called "Parents" denouncing homophobia amongst other things.  
 
+In 2020, he released a new album called "Weird!". He worked on the album during lockdown and released songs with a different universe for each of them such as: 
+* cotton candy
+* strawberry lipstick
+* weird!
+* mars
+* superdeadfriends
+
 Link to the page about his book: [Book](dossier/thirdpage.md)  
 Link to the page about his music festival: [Bludfest](dossier/secondpage.md)

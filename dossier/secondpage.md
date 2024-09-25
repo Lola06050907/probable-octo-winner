@@ -2,7 +2,7 @@
 ## Bludfest 
 ![Alt text](../pic/photobludfest.jpg)
 
-Dom created his own festival called Bludfest for the very first time this year.  
+Dom created his own festival called "Bludfest" for the very first time this year.  
 ===
 
 It took place on the 11th of August at the Milton Keynes Bowl, (more specifically in Buckinghamshire) in England. He wanted the prices of tickets to be as low as possible because a lot of people can't afford to pay for festival tickets (they are usually very expensive). He said in an interview about the matter that music is for everybody so he wanted as many people as possible to be able to attend the event. The tickets were £49.50 and there were more than 7 artists who played at the festival, including Lola Young, Noahfinnce, The Damned (this band was the icon slot of the event), Jasmin Bean and Lil Yatchy.  

@@ -9,8 +9,12 @@ There were other things to do there as well: there were places where you could b
 There was also pub that was built on the premises. It was the Hawley Arms (the pub in Camben Town, in London).  
 
 There were other things to do there as well: there were places where you could buy merchandise or even designer clothes from the brand he created called BRAT (which stands for Beautifullly Romanticised Accidentally Traumatised). There were different types of food to choose from 
-(You could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!)
->There was also pub that was built on the premises. It was the Hawley Arms (the pub in Camben Town, in London).  
+(You could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!)  
+>There was also a pub that was built on the premises: the Hawley Arms
+>
+>> This pub is actually located in Camden Town (in London)
+>
+>P.S: that's the pub Amy Winehouse went to
 
 ![Alt text](../pic/photopub.jpg)  
 

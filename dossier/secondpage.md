@@ -17,7 +17,7 @@ There were other things to do there as well, like places where you could buy mer
 
 ![Alt text](../pic/photopub.jpg)  
 
-There was also a "Make a Friend Tent", which was great if you needed a place to chill and unwind. It was also a place to make friends if you were worried about going to Bludfest on your own. (There was also a little garden behind the tent where you could relax too, that's where, my friend and I made friends with other fans).  
+There was also a "Make a Friend Tent", which was great if you needed a place to chill and unwind. It was also a place to make friends if you were worried about going to Bludfest on your own. (There was a little garden behind the tent where you could relax, that's where my friend and I made friends with other fans).  
 
 There was also a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confessions on the walls. Then, you got a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md)  
 

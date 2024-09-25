@@ -26,5 +26,11 @@ In 2020, he released a new album called "Weird!". He worked on the album during 
 * mars
 * superdeadfriends
 
+| Albums | Sales                  |
+| ------------- | ------------------------------ |
+| 21st Century Liability    | 60,000 sales in the UK |
+| Weird! | 100,000 in the UK  |
+
+
 Link to the page about his book: [Book](dossier/thirdpage.md)  
 Link to the page about his music festival: [Bludfest](dossier/secondpage.md)

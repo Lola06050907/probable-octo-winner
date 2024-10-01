@@ -17,9 +17,9 @@ He moved to London when he was about 16, 17 years old. He was hoping that he wou
 * * *
 ### His discography
 
-He released his first song "King Charles" in 2017. He then released "Tin Pan Boy", another song to denounce a construction project in London. In 2018, he released his first album called "21st Century Liability", which raised awareness on a variety of topics such as sexual assault, gun violence, and mental health. Later on, Dom released an EP called "Hope for the Underrated Youth", with a song called "Parents" denouncing homophobia amongst other things.  
+He released his first song "King Charles" in 2017. He then released "Tin Pan Boy", another song to denounce a construction project in London. In 2018, he released his first album called "21st Century Liability", which raised awareness on a variety of topics, such as sexual assault, gun violence, and mental health. Later on, Dom released an EP called "Hope for the Underrated Youth", with a song called "Parents", denouncing homophobia, amongst other things.  
 
-In 2020, he released a new album called "Weird!". He worked on the album during lockdown and released songs with a different universe for each of them, such as: 
+In 2020, he released a new album called "Weird!". He worked on the album during lockdown and released songs, with a different universe for each of them, such as: 
 * cotton candy
 * strawberry lipstick
 * weird!

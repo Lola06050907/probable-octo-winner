@@ -10,7 +10,7 @@ It took place on the 11th of August at the Milton Keynes Bowl, (more specificall
 There were other things to do there as well, like places where you could buy merchandise or even designer clothes, from the brand he created, called BRAT (which stands for Beautifullly Romanticised Accidentally Traumatised). There were different types of food to choose from (you could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!).   
 >A pub was also built on the premises: the Hawley Arms.  
 >
->> This pub is actually located in Camden Town (in London)
+>> This pub is actually located in Camden Town (in London).
 >
 >P.S: that's Dom's favourite pub and that's the one Amy Winehouse usually went to!
 
@@ -18,6 +18,6 @@ There were other things to do there as well, like places where you could buy mer
 
 At the festival, there was also a "Make a Friend Tent", which was great if you needed a place to chill and unwind. It was also a place to make friends if you were worried about going to Bludfest on your own. (There was a little garden behind the tent where you could relax, that's where my friend and I made friends with other fans).  
 
-There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md)  
+There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md).  
 
-If you want more information about his life and his work, follow this link: [Backtomainpage](../index.md)  
+If you want more information about his life and his work, follow this link: [Backtomainpage](../index.md).

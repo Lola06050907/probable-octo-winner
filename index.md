@@ -1,6 +1,6 @@
 # YUNGBLUD
 
- ~Not Youngblood~  
+ ~~Not Youngblood~~  
  
 ![Alt text](pic/photomain.jpg)
 ## Biography 

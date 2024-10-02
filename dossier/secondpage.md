@@ -21,3 +21,4 @@ At the festival, there was also a "Make a Friend Tent", which was great if you n
 There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md).  
 
 If you want more information about his life and his work, follow this link: [Backtomainpage](../index.md).
+If you want more information about what the festival was like, here's a link to a great article I read a few weeks ago: 

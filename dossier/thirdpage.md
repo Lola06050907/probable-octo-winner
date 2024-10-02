@@ -18,7 +18,8 @@ For example, there is:
 * A page on which there are drawing of someone's lips. So, every time you speak up or stand up for yourself, you can sew them and cut them out of the book.
 * A page where you can write something for your younger self and for you in the future.  
 
+--------------------------------
+
 The particularity of this book is that, apart from the fact that every page has a different message, the author (Dom) answers the questions as well; so it's as if you are taking turns and going through this book together.  
 
 In other words, this book is a diary that can resonate with the reader and it can also be a place to find solace, acceptance and support. 
-

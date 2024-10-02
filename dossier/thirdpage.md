@@ -1,7 +1,7 @@
 # His other projects 
 ## "You need to exist, a book to love and destroy! by YUNGBLUD" 
   
-![Alt text](../pic/photo.jpg) `picture of the book with title on the cover`  
+![Alt text](../pic/photo.jpg) `Picture of the book with title on the cover`  
 
 Dom wrote a book, which was published on the 13th of August, this year. (You could also buy it at his own music festival, which took place two days prior. More info via this link: [Bludfest](../dossier/secondpage.md)
 

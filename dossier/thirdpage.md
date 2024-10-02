@@ -3,20 +3,20 @@
   
 ![Alt text](../pic/photo.jpg) `picture of the book with title on the cover`  
 
-Dom wrote a book which was published on the 13th of August, this year. (You could also buy it at his own music festival, which took place two days prior. More info via this link: [Bludfest](../dossier/secondpage.md)
+Dom wrote a book, which was published on the 13th of August, this year. (You could also buy it at his own music festival, which took place two days prior. More info via this link: [Bludfest](../dossier/secondpage.md)
 
 If you want more information on the artist click on this link: [Backtomainpage](../index.md)  
 
 This book is a way to face your fears and insecurities or to have a place where you can find comfort. It's also a way to help you discover who you are. In this book, each page has a different layout and a specific purpose.  
 ==================================================================== 
 
-For example there is: 
-* a page where you are asked to write all of your regrets (and then to burn the page) and there's another page on which you are suppposed to write things that bring you joy (keep that one though!)
-* a page on which you can write your insecurities and another one on which you can write things you like about yourself
-* a page on which he describes heartbreak to help people who are going through it
-* a page on which he explains to trust your instinct and that you shouldn't let other people's opinions' influence or consume you
-* a page on which there are drawing of someone's lips. So, every time you speak up or stand up for yourself, you can sew them and cut them out of the book
-* a page where you can write something for your youngerself and for you in the future  
+For example, there is: 
+* a page where you are asked to write all of your regrets (and then to burn the page) and another page, on which you are suppposed to write things that bring you joy.
+* a page on which you can write your insecurities and another one on which you can write things you like about yourself.
+* a page on which he describes heartbreak to help people who are going through it.
+* a page on which he explains that you should trust your instinct: you shouldn't let other people's opinions' influence or consume you
+* a page on which there are drawing of someone's lips. So, every time you speak up or stand up for yourself, you can sew them and cut them out of the book.
+* a page where you can write something for your younger self and for you in the future  
 
 The particularity of this book is that, apart from the fact that every page has a different message, the author (Dom) answers the questions as well; so it's as if you are taking turns and going through this book together.  
 

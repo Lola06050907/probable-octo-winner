@@ -1,4 +1,5 @@
 # YUNGBLUD
+ ~Not Youngblood~
 ![Alt text](pic/photomain.jpg)
 ## Biography 
 ### Basics

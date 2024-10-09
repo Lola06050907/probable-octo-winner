@@ -7,7 +7,7 @@ Dom created his own festival called "Bludfest" for the very first time this year
 
 It took place on the 11th of August at the Milton Keynes Bowl, (more specifically in Buckinghamshire) in England. He wanted the prices of tickets to be as low as possible because a lot of people can't afford to pay for festival tickets (they are usually very expensive). He said in an interview about the matter that music is for everybody, so he wanted as many people as possible to be able to attend the event. The tickets were £49.50 and there were more than 7 artists who played at the festival, including Lola Young, Noahfinnce, The Damned (this band was the icon slot of the event), Jasmin Bean and Lil Yatchy.  
 
-There were other things to do there as well, like places where you could buy merchandise or even designer clothes, from the brand he created, called BRAT (which stands for Beautifullly Romanticised Accidentally Traumatised). There were different types of food to choose from (you could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!).   
+There were other things to do there as well, like places where you could buy merchandise or even designer clothes, from the brand he created, called BRAT (which stands for Beautifully Romanticised Accidentally Traumatized). There were different types of food to choose from (you could eat at Nando's and get a Yungblud's burger :) or even drink Bludbeer!).   
 >A pub was also built on the premises: the Hawley Arms.  
 >
 >> This pub is actually located in Camden Town (in London).
@@ -28,7 +28,7 @@ Milton Keynes Bowl  | Number of people
 Capacity  | 30 000 people
 Artists who played at the festival   | 12 (including Yungblud)  
 
-There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin (with a little ghost on it -the ghost is playing guitar-). You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md).  
+There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin with a little ghost playing guitar on it. You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](../dossier/thirdpage.md).  
 
 ------------------
 

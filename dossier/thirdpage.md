@@ -3,7 +3,7 @@
   
 ![Alt text](../pic/photo.jpg) `Picture of the book with title on the cover`  
 
-Dom wrote a book, which was published on the 13th of August, this year. (You could also buy it at his own music festival, which took place two days prior. More info via this link: [Bludfest](../dossier/secondpage.md)
+Dom published a book on the 13th of August 2024, with it being available for sales two days prior at his own music festival. More info via this link: [Bludfest](../dossier/secondpage.md)
 
 If you want more information on the artist click on this link: [Backtomainpage](../index.md)  
 

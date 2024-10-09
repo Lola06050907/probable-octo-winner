@@ -15,7 +15,7 @@ For example, there is:
 * A page on which you can write your insecurities and another one on which you can write things you like about yourself.
 * A page on which he describes heartbreak to help people who are going through it.
 * A page on which he explains that you should trust your instinct: you shouldn't let other people's opinions' influence or consume you.
-* A page on which there are drawing of someone's lips. So, every time you speak up or stand up for yourself, you can sew them and cut them out of the book.
+* A page on which there are drawings of someone's lips. Every time you speak up or stand up for yourself, you can sew them and cut them out of the book.
 * A page where you can write something for your younger self and for you in the future.  
 
 --------------------------------

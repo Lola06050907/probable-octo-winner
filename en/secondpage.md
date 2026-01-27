@@ -28,7 +28,7 @@ Milton Keynes Bowl  | Number of people
 Capacity  | 30 000 people
 Artists who played at the festival   | 12 (including Yungblud)  
 
-There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin with a little ghost playing guitar on it. You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](dossier/thirdpage.md).  
+There was a "Yungblud exhibition" where you could see different items from when Dom was on tour (like his guitar or his previous albums). Plus, at the end of the exhibition, you could write a secret or a confession on the walls. Then, you got a free pin with a little ghost playing guitar on it. You could also buy the book he wrote called "You need to exist, a book to love and destroy" and get a free bookmark!). More info about the book via this link: [Book](thirdpage.md).  
 
 ------------------
 

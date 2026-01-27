@@ -35,5 +35,5 @@ In 2020, he released a new album called "Weird!". He worked on the album during 
 | Weird! | 100,000 sales in the UK  |
 
 
-Link to the page about his book: [Book](dossier/thirdpage.md)  
-Link to the page about his music festival: [Bludfest](dossier/secondpage.md)
+Link to the page about his book: [Book](thirdpage.md)  
+Link to the page about his music festival: [Bludfest](secondpage.md)

@@ -2,7 +2,7 @@
 
  ~~Not Youngblood~~  
  
-![Alt text](pic/photomain.jpg)
+![Alt text](../pic/photomain.jpg)
 ## Biography 
 ### Basics
 Dominic Richard Harrison (stagename Yungblud) is an English artist (more specifically a singer and a songwriter). He was born on the 5th of August 1997, in Doncaster, which is a city in the North of England, more specificallly in South Yorkshire.  

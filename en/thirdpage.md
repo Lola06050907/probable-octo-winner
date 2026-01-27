@@ -3,9 +3,9 @@
   
 ![Alt text](../pic/photo.jpg) `Picture of the book with title on the cover`  
 
-Dom published a book on the 13th of August 2024, with it being available for sales two days prior at his own music festival. More info via this link: [Bludfest](../dossier/secondpage.md)
+Dom published a book on the 13th of August 2024, with it being available for sales two days prior at his own music festival. More info via this link: [Bludfest](secondpage.md)
 
-If you want more information on the artist click on this link: [Backtomainpage](../index.md)  
+If you want more information on the artist click on this link: [Backtomainpage](index.md)  
 
 This book is a way to face your fears and insecurities or to have a place where you can find comfort. It's also a way to help you discover who you are. In this book, each page has a different layout and a specific purpose.  
 ==================================================================== 

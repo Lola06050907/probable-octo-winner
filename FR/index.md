@@ -1,3 +1,4 @@
+[Passer en anglais](../en/index.md)
 /# YUNGBLUD
 
  ~~Pas de sang de jeune ~~~  

@@ -16,7 +16,7 @@ Il y avait aussi d'autres choses à faire, comme des endroits où l'on pouvait a
 
 ![Texte Alt](../pic/photopub.jpg)  
 
-Au festival, il y avait également une tente "Make a Friend Tent", qui était idéale si vous aviez besoin d'un endroit pour vous détendre. C'était aussi un endroit où l'on pouvait se faire des amis si l'on était inquiet à l'idée d'aller seul à Bludfest. (Il y avait un petit jardin derrière la tente où l'on pouvait se détendre, c'est là que mon ami et moi avons noué des liens d'amitié avec d'autres fans).  Il y avait beaucoup de monde, il était donc agréable de trouver un endroit plus calme.
+Au festival, il y avait également une tente "Make a Friend Tent", qui était idéale si vous aviez besoin d'un endroit pour vous détendre. C'était aussi un endroit où l'on pouvait se faire des amis si l'on était inquiet à l'idée d'aller seul à Bludfest. (Il y avait un petit jardin derrière la tente où l'on pouvait se détendre, c'est là que mon ami et moi avons noué des liens d'amitié avec d'autres fans). Il y avait beaucoup de monde, il était donc agréable de trouver un endroit plus calme.
 
 Si vous souhaitez en savoir plus sur sa vie et son œuvre, suivez ce lien : [Backtomainpage](index.md). Si vous voulez en savoir plus sur le festival, voici un lien vers un excellent article que j'ai lu il y a quelques semaines : [GigGuidearticle](https://www.gig-guide.co.uk/news/bludfest-review?fbclid=PAZXh0bgNhZW0CMTEAAabhbA8UNiRBSsi8YgTFejUkihuB9MRpnm4itVr4U9ryFyd77HFrYWtl6f8_aem_56a0Afq1yBh1ucfO4BsPwQ).
 

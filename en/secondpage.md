@@ -1,4 +1,4 @@
-# His other projects 
+[Switch to French](../FR/secondpage.md)# His other projects 
 ## Bludfest 
 ![Alt text](../pic/photobludfest.jpg)
 

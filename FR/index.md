@@ -1,4 +1,5 @@
 [Passer en anglais](../en/index.md)
+<title>Redirecting to https:(../en/index.md)</title>
 /# YUNGBLUD
 
  ~~Pas de sang de jeune ~~~  

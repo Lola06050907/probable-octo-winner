@@ -18,14 +18,10 @@ Il y avait aussi d'autres choses à faire, comme des endroits où l'on pouvait a
 
 Au festival, il y avait également une tente "Make a Friend Tent", qui était idéale si vous aviez besoin d'un endroit pour vous détendre. C'était aussi un endroit où l'on pouvait se faire des amis si l'on était inquiet à l'idée d'aller seul à Bludfest. (Il y avait un petit jardin derrière la tente où l'on pouvait se détendre, c'est là que mon ami et moi avons noué des liens d'amitié avec d'autres fans).  
 
-~~~~ Il y avait beaucoup de monde, il était donc agréable de trouver un endroit plus calme ~~~~
+Si vous souhaitez en savoir plus sur sa vie et son œuvre, suivez ce lien : [Backtomainpage](FR/index.md). Si vous voulez en savoir plus sur le festival, voici un lien vers un excellent article que j'ai lu il y a quelques semaines : [GigGuidearticle](https://www.gig-guide.co.uk/news/bludfest-review?fbclid=PAZXh0bgNhZW0CMTEAAabhbA8UNiRBSsi8YgTFejUkihuB9MRpnm4itVr4U9ryFyd77HFrYWtl6f8_aem_56a0Afq1yBh1ucfO4BsPwQ).
 
+~~~~ Il y avait beaucoup de monde, il était donc agréable de trouver un endroit plus calme ~~~~
 
 Milton Keynes Bowl | Nombre de personnes ------------- | ------------- Capacité | 30 000 personnes Artistes ayant joué au festival | 12 (dont Yungblud)  
 
 Il y avait une "exposition Yungblud" où l'on pouvait voir différents objets datant de l'époque où Dom était en tournée (comme sa guitare ou ses précédents albums). De plus, à la fin de l'exposition, vous pouvez écrire un secret ou une confession sur les murs. Ensuite, vous avez reçu un pin's gratuit avec un petit fantôme jouant de la guitare. Vous pouvez également acheter le livre qu'il a écrit, intitulé "You need to exist, a book to love and destroy" (Vous devez exister, un livre à aimer et à détruire) et obtenir un marque-page gratuit. Plus d'informations sur le livre via ce lien : [Livre](./thirdpage.md).  
-Si vous souhaitez en savoir plus sur sa vie et son œuvre, suivez ce lien : [Backtomainpage](FR/index.md). Si vous voulez en savoir plus sur le festival, voici un lien vers un excellent article que j'ai lu il y a quelques semaines : [GigGuidearticle](https://www.gig-guide.co.uk/news/bludfest-review?fbclid=PAZXh0bgNhZW0CMTEAAabhbA8UNiRBSsi8YgTFejUkihuB9MRpnm4itVr4U9ryFyd77HFrYWtl6f8_aem_56a0Afq1yBh1ucfO4BsPwQ).
-
-------------------
-
-Si vous souhaitez en savoir plus sur sa vie et son œuvre, suivez ce lien : [Backtomainpage](FR/index.md). Si vous voulez en savoir plus sur le festival, voici un lien vers un excellent article que j'ai lu il y a quelques semaines : [GigGuidearticle](https://www.gig-guide.co.uk/news/bludfest-review?fbclid=PAZXh0bgNhZW0CMTEAAabhbA8UNiRBSsi8YgTFejUkihuB9MRpnm4itVr4U9ryFyd77HFrYWtl6f8_aem_56a0Afq1yBh1ucfO4BsPwQ).

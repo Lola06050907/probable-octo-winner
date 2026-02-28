@@ -1,5 +1,5 @@
 [English](../en/index.md)
-/# YUNGBLUD
+# YUNGBLUD
 
  ~~Pas de sang de jeune ~~~  
  

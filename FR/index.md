@@ -1,18 +1,4 @@
-<!DOCTYPE html>
-<html lang="en-US">
-
-<head>
-<meta charset="utf-8">
-<title>Switch to English</title>
-</head>
-<body>
-
-<button onclick="window.location.href='../en/index.md';">
-    English
-</button>
-
-</body>
-</html>
+[English](../en/index.md)
 /# YUNGBLUD
 
  ~~Pas de sang de jeune ~~~  

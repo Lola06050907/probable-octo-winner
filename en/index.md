@@ -1,4 +1,5 @@
-[Français](../FR/index.md)/# YUNGBLUD
+[Français](../FR/index.md)
+# YUNGBLUD
 
  ~~Not Youngblood~~  
  

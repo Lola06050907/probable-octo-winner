@@ -1,8 +1,6 @@
-<div style="text-align: right; margin-bottom: 1rem;">
-  <button onclick="window.location.href='../FR/index.md';">
-    Français
-  </button>
-</div>
+<p style="text-align: right;">
+  <a href="../FR/index.md" class="btn">Français</a>
+</p>
 # YUNGBLUD
 
  ~~Not Youngblood~~  

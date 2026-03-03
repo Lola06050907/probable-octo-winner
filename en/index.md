@@ -1,16 +1,8 @@
-<html lang="en-US">
-  <head>
-<meta charset="utf-8">
-<title>Switch to French</title>
-</head>
-<body>
-
-<button onclick="window.location.href='../FR/index.md';">
+<div style="text-align: right; margin-bottom: 1rem;">
+  <button onclick="window.location.href='../FR/index.md';">
     Français
-</button>
-
-</body>
-</html>
+  </button>
+</div>
 # YUNGBLUD
 
  ~~Not Youngblood~~  

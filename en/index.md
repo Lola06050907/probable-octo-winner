@@ -1,4 +1,18 @@
 [Français](../FR/index.md)
+
+<html lang="en-US">
+  <head>
+<meta charset="utf-8">
+<title>Switch to French</title>
+</head>
+<body>
+
+<button onclick="window.location.href='../fr/index.md';">
+    Français
+</button>
+
+</body>
+</html>
 # YUNGBLUD
 
  ~~Not Youngblood~~  

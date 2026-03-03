@@ -1,6 +1,4 @@
-<p style="text-align: right;">
-  <a href="../FR/index.md" class="btn">Français</a>
-</p>
+[Français](../FR/index.md)
 # YUNGBLUD
 
  ~~Not Youngblood~~  

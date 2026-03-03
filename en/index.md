@@ -1,5 +1,3 @@
-[Français](../FR/index.md)
-
 <html lang="en-US">
   <head>
 <meta charset="utf-8">
@@ -7,7 +5,7 @@
 </head>
 <body>
 
-<button onclick="window.location.href='../fr/index.md';">
+<button onclick="window.location.href='../FR/index.md';">
     Français
 </button>
 

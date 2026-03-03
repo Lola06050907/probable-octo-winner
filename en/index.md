@@ -5,7 +5,7 @@
 </head>
 <body>
 
-<button onclick="window.location.href='FR/index.md';">
+<button onclick="window.location.href='probable-octo-winner/../FR/index.md';">
     Français
 </button>
 
